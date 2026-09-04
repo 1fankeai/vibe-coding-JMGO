@@ -1,1 +1,1 @@
-# vibe-coding-JMGO
+# vibe-coding-nap-lab
